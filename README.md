@@ -1,1 +1,0 @@
-# gyunyeol-app
